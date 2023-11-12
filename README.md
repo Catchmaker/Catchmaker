@@ -1,1 +1,1 @@
-Better results. Less time.
+Better job search. AI first.
